@@ -1,2 +1,2 @@
 # Lui é gay
-* Lui da o cu
+* Uma vez lui esatva andando na rua quano encontrou uma cabra e ele quis muito chupar o pinto da cabra entao lui tirou o bihulin dele pra fora e fudeu a cabra com força, sim meu amigo é duente
